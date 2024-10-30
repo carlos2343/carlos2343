@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @carlos2343
-- 👀 I’m interested in ... Video Games, Anime,and running,
-- 📫 How to reach me ... carlos.miranda@student.judsonu.edu
+- 👀 I’m interested in ... Video Games, Formula One,and running,
+- 📫 How to reach me ... carlosmiranda2343@gmail.com
 - i run cross country and track & field at Judson University 
 
 <!---
